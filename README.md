@@ -1,3 +1,3 @@
 # Visability
 
-Soft-sill up-silling platform tailored for the hospitality industry
+Soft-sill up-skilling platform tailored for the hotel industry
